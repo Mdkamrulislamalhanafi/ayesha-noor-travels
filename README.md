@@ -1,2 +1,1 @@
-# ayesha-noor-travels
-AYESHA NOOR INTERNATIONAL TRAVELS – Your trusted travel partner for air ticketing, visa assistance, Umrah packages, international tours and travel consultation. সহজ ও বিশ্বস্ত ভ্রমণ সেবা।
+AYESHA NOOR INTERNATIONAL TRAVELS – Your trusted travel partner in Moulvibazar, Bangladesh. Air Ticketing, Visa Assistance, Umrah Packages and International Tours.
